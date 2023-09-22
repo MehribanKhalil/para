@@ -1,1 +1,2 @@
-Bu texti yunis yaratdi
+dwehfiuwerhfgnerkgn
+
