@@ -1,0 +1,1 @@
+Bu texti yunis yaratdi
