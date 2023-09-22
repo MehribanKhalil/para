@@ -1,1 +1,1 @@
-Bu texti yunis yaratdi
+Bu texti yunis yaratdi mehiiiiii
